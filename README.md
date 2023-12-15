@@ -1,4 +1,5 @@
-![oc](https://github.com/omkaroc27/omkaroc27/assets/77641172/5c8acf16-7b32-46fc-aeca-358ba46cb2dc)
+
+![oc](https://github.com/omkaroc27/omkaroc27/assets/77641172/f8a0f4d2-f14e-4b2c-8093-b6e4b3106a72)
 
 
 <!--
