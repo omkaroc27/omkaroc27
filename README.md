@@ -1,4 +1,5 @@
-### Hi there 👋
+![oc](https://github.com/omkaroc27/omkaroc27/assets/77641172/5c8acf16-7b32-46fc-aeca-358ba46cb2dc)
+
 
 <!--
 **omkaroc27/omkaroc27** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
